@@ -1,4 +1,4 @@
-Thanks for downloading this theme viviana!
+Thanks for downloading this theme viviana marines!
 
 Theme Name: eBusiness
 Theme URL: https://bootstrapmade.com/ebusiness-bootstrap-corporate-template/
